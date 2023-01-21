@@ -1,4 +1,4 @@
-https://scontent.fdac15-1.fna.fbcdn.net/v/t39.30808-6/306395131_383830007276824_8168545685108475430_n.jpg?stp=dst-jpg_p180x540&_nc_cat=105&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeEAmM7JEbTaAKoL9XJ0SWdcNvOSyK9MmJE285LIr0yYkT8SfQTQtt1AZ3NemQSJTwbrvshY5CRhzaPL2hpF-XuL&_nc_ohc=vdy9vlnVJBoAX_t6rBu&_nc_ht=scontent.fdac15-1.fna&oh=00_AfAjuJJDsURvO-eOVZwe-q_qIMpZwDTDm9sOmcf_MyNYcA&oe=63D0BD06
+
 #### Muntasir Mahdi is a Bengali Islamic Researcher and YouTuber. He makes Islamic videos in Bengali language on YouTube. He mostly answers questions from atheists. However, he also makes Islamic short films.her first short Flim name is Mitha. Muntasir Mahdi was born on October 8,1999. his full name is Muntasir Billah Mahdi.her father was a teacher and her mother is a house wife Muntasir Mahdi attended Tanjimul Ummah cadet Madrasah from 2015 to 2017. then in 2017, he was admitted to Alim Class at Darunnazat Siddikia Kamil Madrasah.After passing Alim from there, he is currently studying at Islamic Arabic University 👋
 
 <!--
